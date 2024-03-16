@@ -1,4 +1,5 @@
 <p>😍برای خرید اکانت اکسپرس به آی ید تلگرام ما پیام بدین</p>
+<a class="af wr" href="https://nabex.shop/product/%d8%ae%d8%b1%db%8c%d8%af-%d8%a7%da%a9%d8%a7%d9%86%d8%aa-express-vpn/" target="_blank"><strong>خرید اکانت express vpn</strong></a><br />
 
 <p>✅لینک عضویت در کانال تلگرام نابکس: <a class="af wr" href="https://t.me/nabex_acc" rel="noopener ugc nofollow" target="_blank">@nabex_acc</a></p>
 
