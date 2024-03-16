@@ -1,3 +1,4 @@
+<a class="af wr" href="https://nabex.shop/product/%D8%AE%D8%B1%DB%8C%D8%AF-%D8%A7%DA%A9%D8%A7%D9%86%D8%AA-nord-vpn/" target="_blank"><strong>اکانت NordVPN</strong></a><br />
 <p>اکانت NordVPN<br />
 ✅شش ماهه تک کاربره 260 تومان<br />
 ✅شش ماهه دو کاربره 360 تومان</p>
