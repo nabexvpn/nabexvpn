@@ -1,5 +1,5 @@
 <p><a class="af wr" href="https://nabex.website/wp-content/uploads/2023/02/video_2023-10-30_11-17-03.mp4" rel="follow" target="_blank"><strong>ویدئو تست سرعت اکانت v2ray</strong></a></p>
-<p><a class="af wr"https://nabex.shop/product/%D8%AE%D8%B1%DB%8C%D8%AF-%D8%A7%DA%A9%D8%A7%D9%86%D8%AA-v2ray-%D8%B3%D8%B1%D9%88%D8%B1-v2ray/" rel="follow" target="_blank"><strong>خرید v2ray</strong></a></p>
+<p><a class="af wr" href="https://nabex.shop/product/%D8%AE%D8%B1%DB%8C%D8%AF-%D8%A7%DA%A9%D8%A7%D9%86%D8%AA-v2ray-%D8%B3%D8%B1%D9%88%D8%B1-v2ray/" rel="follow" target="_blank"><strong>خرید v2ray</strong></a></p>
 
 <p>😍سرعت بسیار بالا و بدون قطعی + پشتیبانی تا آخرین روز اشتراک😍</p>
 
